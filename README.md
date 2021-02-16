@@ -6,10 +6,8 @@ https://prnt.sc/xmnj4d
 
      [C0ded By xLoadCode / Ghosty]
                         
-  Discord: Ghosty, 𝒍𝒔𝒒#0001           
-  Disocrd (LSQ): discord.gg/linksquad 
+  Discord: Ghosty#5065      
   Telegram: t.me/zGhosty              
-  Telegram (lsq): t.me/LinkSQpublic   
 
      [C0ded By xLoadCode / Ghosty]
 [+]======================================[+]
